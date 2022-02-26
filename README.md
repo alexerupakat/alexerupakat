@@ -4,7 +4,7 @@
 - 🌱 I’m currently learning AI/ML techniques.
 - 👯 I’m looking to collaborate on interesting projects
 
-- 💬 Ask me about 
+- 💬 Ask me about Python
 - 📫 How to reach me: alexerupakat@gmail.com
                      
  ⚡ 
