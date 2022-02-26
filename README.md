@@ -6,6 +6,7 @@
 
 - 💬 Ask me about 
 - 📫 How to reach me: alexerupakat@gmail.com
+                       linkedin.com/in/alex-thomas-0674b6200/
 
  ⚡ 
 
